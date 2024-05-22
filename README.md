@@ -13,4 +13,5 @@ We believe in fairness and the value of hard work. As such, any violation of our
 Join us in fostering a culture of honesty and trust in the academic process.
 
 **If you cheat during the test, we will punish you**
+
 ***We are against cheating!***
